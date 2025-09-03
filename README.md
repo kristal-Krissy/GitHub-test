@@ -5,3 +5,8 @@ I am Kristal a cfg career switcher now working at harris falconwood. I am hoping
 I have one daughter named Kehlani, she likes:
 - Food
 - Playing outside
+
+## Activities i like
+- Goint out to eat
+- spending time with family
+- adventure activities
